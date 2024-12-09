@@ -1,1 +1,1 @@
-# wdi1zmieniłem readme coś tam dodałem Ignacy jestem
+# wdi1zmieniłem readme coś tam dodałem Ignacy jestem.
